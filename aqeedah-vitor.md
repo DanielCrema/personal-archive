@@ -1,5 +1,7 @@
 # 🕉️ Religião plausível do Vitor — Fundamentos (Aqeedah)
 
+Esta é a formulação final dos fundamentos (Aqeedah) da **religião que Vitor considera plausível** como ponto de partida para seu caminho espiritual. O documento registra, de forma sistemática, suas concepções sobre Revelação, Verdade, infalibilidade, autoridade espiritual, práticas e critérios de confiança.  
+
 ## 1. A Revelação 📜
 
 * **Os Vedas foram revelados** em algum momento na história que ninguém sabe quando, em algum ciclo cósmico, por um autores desconhecidos. Inicialmente não eram escritos e só bem depois é que firam escritos. Os Vedas são infalíveis *(ver art. de fé 3)*.
