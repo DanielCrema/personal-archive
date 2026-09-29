@@ -4,7 +4,7 @@ Esta é a formulação final dos fundamentos (Aqeedah) da **religião que Vitor 
 
 ## 1. A Revelação 📜
 
-* **Os Vedas foram revelados** em algum momento na história que ninguém sabe quando, em algum ciclo cósmico, por um autores desconhecidos. Inicialmente não eram escritos e só bem depois é que firam escritos. Os Vedas são infalíveis *(ver art. de fé 3)*.
+* **Os Vedas foram revelados** em algum momento na história que ninguém sabe quando, em algum ciclo cósmico, por autores desconhecidos. Inicialmente não eram escritos e só bem depois é que foram escritos. Os Vedas são infalíveis *(ver art. de fé 3)*.
 
 
 ## 2. A Verdade 🧠
